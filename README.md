@@ -60,7 +60,7 @@ Future Enhancements
 Contact Information
 
 If you have any questions or feedback, feel free to reach out:
-• Email: solyluna@example.com
+• Email: solylunat.reactiva@gmail.com
 • WhatsApp: Contact Us
 • Social Media: Facebook, Instagram, TikTok
 
